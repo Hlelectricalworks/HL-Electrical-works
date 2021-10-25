@@ -1,0 +1,2 @@
+# HL-Electrical-works
+We are HL electrical works we have 45 years experience in submersible motor. We are specialist in submersible motors,lifting,erection.Our electrical works is located in poonamallee.We are well known for our expertise service in motor services, water pump services, submersible motor services. We fix and repair services from time to time. We offer cost effective and long lasting services.we provide electrical motor works and servcies.We are one of the best electrical service centre in and around poonamallee.Contact us:9789964841
